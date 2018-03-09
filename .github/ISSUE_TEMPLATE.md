@@ -1,5 +1,4 @@
-**Coach assistant:** @wisn / @bekicot / @probeadd / @ghaisani / @afnizarnur / @ridhofadilah / @underground-11 / @NoveltyOFD / @effendivina / @kartininurfalah
-(hapus selain ascoach Anda)
+**Coach assistant:**  @bekicot 
 
 **Sanity checks:**
 
